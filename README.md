@@ -1,0 +1,1 @@
+Öylesine bişeyler deniyoruz öğreniyoruz
